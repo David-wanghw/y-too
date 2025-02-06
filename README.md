@@ -1,6 +1,6 @@
 # YToo官网地址
 
-最新地址：[y-too.com]([https://y-too.com/aff.php?aff=5881](https://y-too.com/aff.php?aff=4026))
+最新地址：[y-too.com](https://y-too.com/aff.php?aff=4026)
 
 ## YToo介绍
 
